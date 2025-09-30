@@ -1,5 +1,7 @@
 科学使用现代化技术，进行有效信息的获取。https://tg1.goudan.site/#/register?code=79b9RSTB
 
+<img width="295" height="382" alt="image" src="https://github.com/user-attachments/assets/e8502a44-995b-412b-a9c1-e482decdedaa" />
+
 # xiyouyun
 📢 免责声明 | Disclaimer
 中文
